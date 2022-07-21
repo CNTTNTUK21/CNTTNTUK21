@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Le Dinh Dung
 - 👀 I’m interested in : Artificial Intelligence
-- 🌱 I’m currently learning Nguyen Trai Univesiti
+- 🌱 I’m currently learning Nguyen Trai Univesity
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
